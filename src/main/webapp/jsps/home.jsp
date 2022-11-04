@@ -14,7 +14,7 @@
 	Landmark Technologies is a software development company. 
 	Class26 will run from October 2, 2021.
 	Class26 will run from October 2, 2021.
-	Class26 will run from October 2, 2021.
+	Class26 will run from October 2, 2022.
 	The shout of the King Jesus is in our midst. HE IS OUR SUCCESS ACCESS KEY</h2>
 <hr>
 <div style="text-align: center;">
